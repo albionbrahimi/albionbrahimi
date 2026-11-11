@@ -1,4 +1,4 @@
-### Hi, I'm Albion 👋
+### Hi, I'm Albion 
 
 Second-year **Applied Economics & Management** student in Kosovo, learning to answer economic and business questions with data.
 
